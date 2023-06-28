@@ -1,6 +1,6 @@
 Hi there, I’m jessenjoseph
 
-I am a full-stack Engineer. My latest role was in the Fintech industry https://www.linkedin.com/in/jessen-joseph-sajith/
+I am a full-stack Engineer. My latest role was in Consultancy - Europe's top consultancy (5 months+ ) My best role so far was in the previous role in the Fintech industry https://www.linkedin.com/in/jessen-joseph-sajith/
 
 I love talking and reading about #humility, #kindness, #KindnessIsPowerful #emotionalinvesting #humor #diligence #benefitsofwfh #cloudcomputing and real life experiences/testimonials.
 
